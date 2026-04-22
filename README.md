@@ -20,7 +20,4 @@ if you want to know more about me, check out [my website!](https://oestrogeen.gr
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
 <hr>
