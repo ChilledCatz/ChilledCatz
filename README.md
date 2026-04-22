@@ -8,3 +8,19 @@ this is the place where i store all my tinkering projects! mainly webdev stuff, 
 - looking to pick up anything new that excites my brain :)
 
 if you want to know more about me, check out [my website!](https://oestrogeen.gratis)
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<hr>
